@@ -1,0 +1,3 @@
+- can speak, read, and write German *and* French
+- currently learning **European** Portuguese (there's a noticeable difference between European and Brazilian Portuguese)
+- building websites sounds like my idea of *fun*
